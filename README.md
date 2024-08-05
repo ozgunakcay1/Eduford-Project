@@ -1,7 +1,4 @@
-![Eduford3](https://github.com/user-attachments/assets/e293aa35-01b8-4908-9003-a07e8d76a466)
-
-![Eduford2](https://github.com/user-attachments/assets/ecf40a56-d928-4045-a3a6-3d51c378fde2)
-
-![Eduford3](https://github.com/user-attachments/assets/0c22cab0-48a1-40e6-bd58-cef41afce0ff)
-
-![Eduford5](https://github.com/user-attachments/assets/4ae73eb9-d44e-4dd3-b666-554bdaedbecd)
+![Eduford1](https://github.com/user-attachments/assets/f18d3b99-313c-418d-9ab3-daa78be9e8f6)
+![Eduford2](https://github.com/user-attachments/assets/0fa79b0a-04d9-4b38-907a-98c421db7311)
+![Eduford3](https://github.com/user-attachments/assets/35490683-588f-462b-bc30-33528132de0c)
+![Eduford5](https://github.com/user-attachments/assets/f890e77c-ef6d-4730-8c9f-a68389ed69a4)
